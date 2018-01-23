@@ -8,7 +8,9 @@
 
 мои фотопортреты:
 
-![alt text](https://pp.userapi.com/c543101/v543101082/41ed1/gTBObvZkyWc.jpg)
+![alt text](https://pp.userapi.com/c824200/v824200200/83cdd/0O-b2O_la20.jpg)
+
+![alt text](https://pp.userapi.com/c824204/v824204562/7a05c/rdmE6tXaKmk.jpg)
 
 
 ## ВАЖНАЯ ИНФА!
