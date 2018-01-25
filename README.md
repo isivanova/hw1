@@ -17,6 +17,8 @@
 
 ![alt text](https://pp.userapi.com/c824204/v824204562/7a05c/rdmE6tXaKmk.jpg)
 
+![alt text](https://pp.userapi.com/c841323/v841323154/179/B1BNrAKkBUw.jpg)
+
 ---
 
 ## ВАЖНАЯ ИНФА!
