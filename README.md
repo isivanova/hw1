@@ -3,7 +3,6 @@
 ---
 **ну че сказать, _это моя страничка_**
 > # *Ира
-====== 
 > ## *девица вздорная и замысловатая
 > ## *тот еще ленивец
 > ## *мечтаю стать стендапершей
@@ -14,12 +13,12 @@
 # мои фотопортреты:
 
 ![alt text](https://pp.userapi.com/c824200/v824200200/83cdd/0O-b2O_la20.jpg)
-
-![alt text](https://pp.userapi.com/c824204/v824204562/7a05c/rdmE6tXaKmk.jpg)
-
-![alt text](https://pp.userapi.com/c841323/v841323154/179/B1BNrAKkBUw.jpg)
-
 ---
+![alt text](https://pp.userapi.com/c824204/v824204562/7a05c/rdmE6tXaKmk.jpg)
+---
+![alt text](https://pp.userapi.com/c841323/v841323154/179/B1BNrAKkBUw.jpg)
+---
+
 
 ## ВАЖНАЯ ИНФА!
 ![alt text](https://pp.userapi.com/c543101/v543101082/41ed1/gTBObvZkyWc.jpg)
